@@ -1,0 +1,18 @@
+1- Quais as fontes de financiamento da GOL, ou seja, como conseguiu os recursos para tantos e arriscados investimentos?
+
+A GOL tomou muitas e diversas decisões arriscadas ao longo dos anos, tendo de obter financiamento para tal. As suas fontes de financiamento foram as seguintes: 
+- Capital próprio do Grupo Aurea, proprietário da GOL, que é constituído por um conglomerado de empresas de diversos setores, sendo consolidado como uma das maiores empresas de transporte terrestre de passageiros do Brasil. Permitiu-lhe a entrada no mercado aéreo nacional.
+- Fundo private equity da empresa americana AIG Capital.
+- Capta capital da bolsa de valores de São Paulo em 2004
+- Lucros da empresa, depois de consolidar no mercado brasileiro o negócio de baixas tarifas.
+- Negócio dos Papéis da GOL na Bolsa de Valores, que tiveram valorização de 143%. 
+- Abertura do seu capital a parceiros estratégicos e venda de ações.
+- Processo de reestruturação em curso para recuperar do endividamento incorrido durante a pandemia do covid19.
+- Acordos comerciais com companhias estrangeiras : Air France, KLM, American Airlines.
+- Parceria com Delta Airlines 
+
+|                                                                                                                                                                                                    | Oportunidades | Ameaças -Aumento dos custos de operação:<br>preços de combustíveis em alta e<br>incertezas sobre a estabilidade do<br>câmbio impactam custos fixos. Varig com pé - Concorrência intensa no mercado<br>interno: disputa acirrada com LATAM<br>e Azul, ambas com vantagens<br>estratégicas.  |
+| -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
+| Pontos Fortes                                            - Modelo de negócios eficiente: implementação do conceito "Low cost, Low Fare", permitindo tarifas até 25% mais baixas que a concorrência |               |                                                                                                                                                                                                                                                                                            |
+| Pontos Fracos - Nível elevado de endividadmento: dívida superior a 20 biliões de reais, resultando em recuperação judicial.                                                                        |               |                                                                                                                                                                                                                                                                                            |
+|                                                                                                                                                                                                    |               |                                                                                                                                                                                                                                                                                            |
